@@ -1,1 +1,1 @@
-Alx is amazing
+Alx school is the best
